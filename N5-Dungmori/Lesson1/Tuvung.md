@@ -29,3 +29,5 @@ Hajimemashite: Rất hân hạnh
 gouzo
 
 karachimashita: đến từ đâu
+
+kantan: dễ dàng >< muzukashi: khó khăn
